@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Raziboffical/https://www.facebook.com/share/1AA7hw44LK/
 - 👀 I’m interested in ...https://www.facebook.com/share/15F2dnXwF2/
 - 🌱 I’m currently learning ...https://docs.github.com/en
-- 💞️ I’m looking to collaborate on ...https://docs.fscebooksdk.com/en
-- 📫 How to reach me ... POPULAR 
-- 😄 Pronouns: ...HE/HIS/HIM
+- 💞️ I’m looking to collaborate on ... #Love
+- 📫 How to reach me ... #MONTIZETIONS
+- 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 https://www.facebook.com/share/15F2dnXwF2/
 <!---https://docs.github.com/en
